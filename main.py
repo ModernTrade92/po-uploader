@@ -1,0 +1,1 @@
+[ISI DIAMbil dari canvas]
